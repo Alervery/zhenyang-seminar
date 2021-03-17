@@ -4,7 +4,7 @@
 https://elmas3.github.io/mao-seminar/
 
 # 成员
-真央教授
+真央（魔王）教授
 Emals
 Wakaba
 
